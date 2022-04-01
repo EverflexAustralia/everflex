@@ -1,1 +1,2 @@
 # everflex
+At EverFlex you can trust them to bring you the very best options at any time of the year. Their range of school shoes and work styles merge fashion and function effortlessly. Students of all ages appreciate the support, flexibility, and high-shine of our school shoes. Workers trust their slip resistant range to keep them steady in any environment. From long days in the classroom to action-packed shifts in the workplace, our enduring [Everflex] (https://everflex.com.au/) shoes will bring you the best comfort!
